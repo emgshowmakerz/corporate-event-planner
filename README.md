@@ -21,8 +21,6 @@ Showmakerz is a professional corporate event management company that specializes
 From planning corporate conferences and business meetings to managing large scale product launches and brand promotions, the team focuses on delivering high quality event experiences that reflect the client’s brand and objectives. Every event is designed with attention to detail to ensure that the audience enjoys a seamless and engaging experience.
 
 Businesses looking to organize corporate events, product launches, or promotional activities can explore professional event planning services at
-https://www.showmakerz.com
+https://www.showmakerz.com/corporate-events.html
 
 Corporate events continue to play a significant role in business growth and brand building. With the support of a professional corporate event management company, businesses can create impactful experiences that strengthen relationships, promote their brand, and leave a lasting impression on their audience.
-
-(https://www.showmakerz.com/corporate-events.html)
