@@ -1,1 +1,1 @@
-# corporate-event-planner
+# Corporate Event Planner – Showmakerz  Showmakerz is a professional event management company specializing in corporate events, product launch events, stage fabrication, employee engagement programs, and brand activations.  We help companies create memorable business events with creative event concepts, professional stage setups, and seamless event management.  Learn more about our services here: [https://www.showmakerz.com](https://www.showmakerz.com/corporate-events.html)
